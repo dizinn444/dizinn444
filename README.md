@@ -1,5 +1,5 @@
 # Hello Stranger
-- 🩰 My email contact is diogo.barra.costa@escola.pr.gov.br
+- 🩰 My email contact is diogo.barral.costa@escola.pr.gov.br
 - 👋 Hi, I’m @dizinn444
 - 👀 I'm very interest in nothing lol ;-;
 - 🌱 I’m currently learning ...
